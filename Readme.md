@@ -1,7 +1,8 @@
 # Github curso
 
 O amor é lindo
-Igual o meu Carlos
+
+Igual o meu por mimoso
 
 Que Deus nos abençoe hoje sempre
 
