@@ -4,4 +4,5 @@ O amor é lindo
 Igual o meu Carlos
 
 Que Deus nos abençoe hoje sempre
-kkkkkkkkkkkkkkkkkkkkkkkkk
+
+Gostou do curso, ateum cafe vale
